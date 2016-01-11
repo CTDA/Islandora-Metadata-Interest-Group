@@ -3,7 +3,7 @@
 ### 
 ---
 * Chair: Jennifer Eustis
-* Notetaker:  TBD
+* Notetaker:  Jennifer Eustis
 
 ---
 
